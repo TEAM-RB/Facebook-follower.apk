@@ -6,7 +6,7 @@
 # Facebook-follower.apk
 It is an advance fishing app fully based on telegram bot🇧🇩🔥💡
 
-If you want to buy this catch your sketchware project inbox 📥
+If you want to buy this sketchware project inbox 📥
 https://t.me/Call_ME_TEAM_RB
 
 How to make the payload
